@@ -1,0 +1,2 @@
+# tributePage
+Ao Freddie Mercury
